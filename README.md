@@ -1,3 +1,3 @@
 # A Love webpage😉
 
-[*SEE IN*](https://ajay-o-s.github.io/love)
+[*SEE IN*](https://ajay-o-s.github.io/Love/)
